@@ -48,6 +48,7 @@
 | Eat Sleep Dream English | https://www.youtube.com/channel/UCu4AP8qmYnXNUipUeyPQKig |
 | EnglishAnyone | https://www.youtube.com/user/EnglishAnyone |
 | Oxford Online English | https://www.youtube.com/user/oxfordonlineenglish |
+| linguamarina | https://www.youtube.com/channel/UCAQg09FkoobmLquNNoO4ulg |
 
 #### Diğer Kanallar
 
