@@ -4,6 +4,7 @@
 
 | Kanal Sahibi | Link |
 | :--- | :--- |
+| Çilem Akar | https://www.youtube.com/channel/UCCxc5b4lQU_hwrZVyZr92Ew |
 | English with Lucy | https://www.youtube.com/channel/UCz4tgANd4yy8Oe0iXCdSWfA |
 | JamesESL English Lessons (engVid) | https://www.youtube.com/channel/UCwA7Aepp7nRUJNa8roQ-6Bw |
 | Learn English with Emma [engVid] | https://www.youtube.com/channel/UCVBErcpqaokOf4fI5j73K_w |
