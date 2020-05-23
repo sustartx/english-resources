@@ -50,6 +50,7 @@
 | Oxford Online English | https://www.youtube.com/user/oxfordonlineenglish |
 | linguamarina | https://www.youtube.com/channel/UCAQg09FkoobmLquNNoO4ulg |
 | EngFluent | https://www.youtube.com/user/engfluentvids |
+| VIRTUALLY NATIVE | www.youtube.com/user/eieiSensei |
 
 #### Diğer Kanallar
 
