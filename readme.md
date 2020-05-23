@@ -51,3 +51,8 @@
 | TEDx Talks | https://www.youtube.com/user/TEDxTalks |
 | TEDxYouth | https://www.youtube.com/user/TEDxYouth |
 | SciShow Space | https://www.youtube.com/channel/UCrMePiHCWG4Vwqv3t7W9EFg |
+
+#### Yapılacaklar
+- Kanallar sahiplerine göre Türk ve Yabancı olarak işaretlenecek veya gruplanacak.
+- Müfredata dayalı derslerin dışında günlük İngilizce eğitimler veren kanallar eklenecek ve gruplanacak.
+- Ücretsiz sohbet için kaynaklar eklenecek.
