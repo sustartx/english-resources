@@ -49,6 +49,7 @@
 | EnglishAnyone | https://www.youtube.com/user/EnglishAnyone |
 | Oxford Online English | https://www.youtube.com/user/oxfordonlineenglish |
 | linguamarina | https://www.youtube.com/channel/UCAQg09FkoobmLquNNoO4ulg |
+| EngFluent | https://www.youtube.com/user/engfluentvids |
 
 #### Diğer Kanallar
 
