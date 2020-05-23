@@ -44,6 +44,7 @@
 | Emrah Hoca | https://www.youtube.com/channel/UC7YaqFfMax7QTyWRcDstMvw |
 | Nurullah ÖKTEM | https://www.youtube.com/user/ingilizcevideo |
 | The English Coach | https://www.youtube.com/channel/UC-g0gSStENkYPXFRsKrlvyA |
+| Eat Sleep Dream English | https://www.youtube.com/channel/UCu4AP8qmYnXNUipUeyPQKig |
 
 #### Diğer Kanallar
 
