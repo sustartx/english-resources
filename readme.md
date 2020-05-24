@@ -60,6 +60,7 @@
 | Amy Walker |www.youtube.com/watch?v=4NriDTxseog |
 | Vanessa Van Edwards |www.youtube.com/user/vvanpetten |
 | Time To Speak |www.youtube.com/channel/UCEnFZgaUW39cnD0qY5OgYmw |
+| Demet Tuncer |https://www.youtube.com/channel/UCZFxYUEMCctTUas2fUTSdug |
 
 #### Diğer Kanallar
 
