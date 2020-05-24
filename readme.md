@@ -63,6 +63,7 @@
 | Demet Tuncer | ww.youtube.com/channel/UCZFxYUEMCctTUas2fUTSdug |
 | Sarah Nourse | ww.youtube.com/channel/UCDbGw5fdxTLjRsNnD7_Jwvw |
 | Cambridge English | www.youtube.com/user/cambridgeenglishtv |
+| Akın Dil Eğitim | https://www.youtube.com/channel/UC7isVkQINlzE96ONLgeM9HA |
 
 #### Diğer Kanallar
 
