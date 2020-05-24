@@ -61,6 +61,7 @@
 | Vanessa Van Edwards |www.youtube.com/user/vvanpetten |
 | Time To Speak |www.youtube.com/channel/UCEnFZgaUW39cnD0qY5OgYmw |
 | Demet Tuncer |https://www.youtube.com/channel/UCZFxYUEMCctTUas2fUTSdug |
+| Sarah Nourse |https://www.youtube.com/channel/UCDbGw5fdxTLjRsNnD7_Jwvw |
 
 #### Diğer Kanallar
 
