@@ -62,6 +62,7 @@
 | Time To Speak |www.youtube.com/channel/UCEnFZgaUW39cnD0qY5OgYmw |
 | Demet Tuncer |https://www.youtube.com/channel/UCZFxYUEMCctTUas2fUTSdug |
 | Sarah Nourse |https://www.youtube.com/channel/UCDbGw5fdxTLjRsNnD7_Jwvw |
+| Cambridge English | www.youtube.com/user/cambridgeenglishtv |
 
 #### Diğer Kanallar
 
