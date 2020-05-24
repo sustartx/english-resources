@@ -56,6 +56,7 @@
 | Accent's Way English with Hadar | https://www.youtube.com/user/accentsway &#124; https://www.youtube.com/channel/UClPyOwXLnSMejFdLvJXjA5A |
 | Rachel and Jun | https://www.youtube.com/user/MyHusbandisJapanese |
 | Discover English | https://www.youtube.com/channel/UCC7bi--JA7Tgly_I6Jd9sGQ |
+| Interactive English | https://www.youtube.com/channel/UC2SUoo36iHgVLEK7EEVPIFQ |
 
 #### Diğer Kanallar
 
