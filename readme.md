@@ -59,6 +59,7 @@
 | Interactive English | https://www.youtube.com/channel/UC2SUoo36iHgVLEK7EEVPIFQ |
 | Amy Walker | https://www.youtube.com/watch?v=4NriDTxseog |
 | Vanessa Van Edwards  | https://www.youtube.com/user/vvanpetten |
+| Time To Speak | https://www.youtube.com/channel/UCEnFZgaUW39cnD0qY5OgYmw |
 
 #### Diğer Kanallar
 
