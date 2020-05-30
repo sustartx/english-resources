@@ -66,6 +66,7 @@
 | Akın Dil Eğitim | https://www.youtube.com/channel/UC7isVkQINlzE96ONLgeM9HA |
 | English With Kris Amerikos | https://www.youtube.com/channel/UCJDPZQ3ykSD4qM2boqah8rw |
 | AcademicEnglishHelp | https://www.youtube.com/user/AcademicEnglishHelp |
+| Deep English | https://www.youtube.com/user/DeepEnglishDotCom |
 
 #### Diğer Kanallar
 
