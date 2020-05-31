@@ -67,6 +67,7 @@
 | English With Kris Amerikos | https://www.youtube.com/channel/UCJDPZQ3ykSD4qM2boqah8rw |
 | AcademicEnglishHelp | https://www.youtube.com/user/AcademicEnglishHelp |
 | Deep English | https://www.youtube.com/user/DeepEnglishDotCom |
+| English Fluency Journey | https://www.youtube.com/channel/UC9eIq7PwD0WA-2B_Sp7xGdw |
 
 #### Diğer Kanallar
 
