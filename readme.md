@@ -68,6 +68,7 @@
 | AcademicEnglishHelp | www.youtube.com/user/AcademicEnglishHelp |
 | Deep English | www.youtube.com/user/DeepEnglishDotCom |
 | English Fluency Journey | www.youtube.com/channel/UC9eIq7PwD0WA-2B_Sp7xGdw |
+| Shaw English Online | https://www.youtube.com/user/ShawEducation |
 
 #### Diğer Kanallar
 
