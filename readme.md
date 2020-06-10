@@ -78,6 +78,20 @@
 | TEDxYouth | www.youtube.com/user/TEDxYouth |
 | SciShow Space | www.youtube.com/channel/UCrMePiHCWG4Vwqv3t7W9EFg |
 
+#### Android Uygulamaları
+
+| Uygulama Adı | Link |
+| :--- | :--- |
+| WordUp Vocabulary | https://play.google.com/store/apps/details?id=co.wordupapp.app |
+| LearnEnglish Podcasts - Free English listening | https://play.google.com/store/apps/details?id=hk.hkbc.epodcast |
+| English Grammar Test | https://play.google.com/store/apps/details?id=com.truatvl.englishgrammartest.dev |
+| English Grammar Test | https://play.google.com/store/apps/details?id=com.hitech.englishtest |
+| Famous English Listen Offline | https://play.google.com/store/apps/details?id=com.dictionary.englishadrian |
+| English tenses practice | https://play.google.com/store/apps/details?id=vn.magik.englishgrammar |
+| English 1500 Conversation | https://play.google.com/store/apps/details?id=madiva.com.talkenglishconversation |
+| Duolingo: Learn Languages Free | https://play.google.com/store/apps/details?id=com.duolingo |
+| 1000 English Stories | https://play.google.com/store/apps/details?id=com.saiuniversalbookstore.EnglishStories |
+
 #### Yapılacaklar
 - Kanallar sahiplerine göre Türk ve Yabancı olarak işaretlenecek veya gruplanacak.
 - Müfredata dayalı derslerin dışında günlük İngilizce eğitimler veren kanallar eklenecek ve gruplanacak.
